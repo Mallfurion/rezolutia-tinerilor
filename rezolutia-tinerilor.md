@@ -2,7 +2,7 @@
 
 **Propunere de la:** Consiliul Director
 
-Adunarea Generală reafirmă că cercetășia în România este, în esență, o mișcare a tinerilor.
+Adunarea Generală reafirmă că cercetășia în România este o mișcare educativă a copiilor și tinerilor, în care ne propunem să creștem rolul activ al tinerilor în inițiativă, decizie și leadership.
 
 Tinerii sunt motorul, inițiatorii și principalii decidenți ai mișcării noastre.
 
@@ -20,6 +20,12 @@ Afirmăm că ONCR este cadrul comun în care realizăm împreună Viziunea 2029,
 
 Contribuția la organizația națională se manifestă și în propuneri, muncă în echipe naționale, candidaturi și asumare publică de responsabilități, în numele ONCR, nu pe la spatele ei.
 
-Adunarea Generală oferă mandat Consiliului Director să își exercite rolul de setare a direcției și de protejare a caracterului de mișcare națională unitară a cercetășiei din România, prin decizii curajoase și transparente, și invită Centrele Locale și tinerii să intre activ în acest cadru: să propună, să construiască, să își asume responsabilități și să își crească reprezentarea la nivel național.
+Adunarea Generală reafirmă rolul Consiliului Director de a contribui la implementarea și clarificarea direcțiilor stabilite de Adunarea Generală și de a sprijini coerența și caracterul unitar al mișcării la nivel național, prin decizii asumate public, transparente și fundamentate în direcțiile stabilite de Adunarea Generală, comunicate deschis organizației și aliniate cu mandatul primit, fără a extinde atribuțiile stabilite prin Statut și Regulament.
+
+Adunarea Generală invită Centrele Locale și tinerii să intre activ în acest cadru: să propună, să construiască, să își asume responsabilități și să își crească reprezentarea la nivel național.
+
+Pentru implementarea principiilor prezentei rezoluții, Consiliul Director va elabora și va prezenta Adunării Generale propuneri concrete de operaționalizare, însoțite de fundamentare și mecanisme de implementare.
 
 Mișcarea nu se schimbă din culise, ci prin implicare.
+
+Prezenta rezoluție are caracter declarativ și de orientare strategică și nu modifică, nu extinde și nu poate fi interpretată ca extinzând atribuțiile Consiliului Director dincolo de cadrul stabilit de Statutul și Regulamentul ONCR. În cazul unor neclarități de interpretare, prevalează prevederile Statutului și Regulamentului ONCR.
