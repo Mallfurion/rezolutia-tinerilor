@@ -18,7 +18,7 @@ Este important de spus clar: **rezoluția nu schimbă Statutul și nu redefineș
 
 Asta este miza reală: nu schimbarea regulilor, ci schimbarea modului în care folosim spațiul deja existent.
 
-În același timp, ideea de „mișcare a tinerilor” nu exclude pe nimeni și nu dezechilibrează organizația. Din contră, ea definește mai clar rolurile: **tinerii sunt încurajați să conducă, iar adulții au responsabilitatea de a crea condițiile în care acest lucru devine posibil – spațiu sigur, resurse, suport și continuitate.**
+În același timp, ideea de „mișcare a tinerilor” nu exclude pe nimeni și nu dezechilibrează organizația. Din contră, ea definește mai clar rolurile: **tinerii sunt încurajați să conducă, iar adulții, prin cooperare intergenerațională, au responsabilitatea de a crea condițiile în care acest lucru devine posibil – spațiu sigur, resurse, suport și continuitate.**
 
 Aici apare, de fapt, unul dintre punctele cheie: **rolul adulților devine și mai important în acest context.**
 
@@ -30,8 +30,6 @@ Un sistem youth-led nu funcționează fără adulți implicați, care:
 - și asigură stabilitatea organizației.
 
 Fără acest suport, ideea rămâne doar intenție.
-
-În acest sens, credem că o mișcare a tinerilor nu se construiește în opoziție cu adulții, ci prin **cooperare intergenerațională**, în care tinerii cresc în roluri reale de leadership, iar adulții creează condițiile și continuitatea necesare.
 
 Rezoluția răspunde și unei realități deja observate în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, ceea ce afectează retenția și dezvoltarea lor ca viitori lideri. Această nevoie este vizibilă inclusiv în discuțiile despre Jamboree, unde pregătirea tinerilor pentru roluri reale de coordonare devine un element critic.
 
