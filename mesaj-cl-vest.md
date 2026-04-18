@@ -51,6 +51,4 @@ Diferențele de formulare sunt firești într-un astfel de proces și pot fi îm
 
 Cu încredere în procesul nostru democratic și în capacitatea noastră de a construi împreună,
 
-_Nume cine trimite_
-
 **Centrul Local “Vest” Cluj-Napoca**
