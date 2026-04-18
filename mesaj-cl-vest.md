@@ -45,9 +45,9 @@ Un cadru de lucru, nu o rescriere de reguli.
 
 ---
 
-Credem că direcția propusă prin această rezoluție merită susținută și consolidată printr-un dialog deschis și responsabil între Centrele Locale.
+Credem că direcția propusă prin această rezoluție merită susținută și consolidată, iar miza principală rămâne fondul acestei propuneri: direcția pe care o asumăm ca organizație și cadrul în care tinerii pot avea un rol real în inițiativă, decizie și leadership.
 
-Rămânem deschiși la discuții și clarificări, iar în măsura în care există și alte Centre Locale care identifică nevoi de ajustare, suntem deschiși să colaborăm pentru a formula și susține împreună eventuale amendamente care să reflecte cât mai bine intenția comună a organizației.
+Diferențele de formulare sunt firești într-un astfel de proces și pot fi îmbunătățite prin mecanismele de amendare din cadrul Adunării Generale, în contextul unui dialog activ deja existent la nivelul organizației, iar în acest sens rămânem deschiși la colaborare pentru formularea și susținerea de amendamente.
 
 Cu încredere în procesul nostru democratic și în capacitatea noastră de a construi împreună,
 
