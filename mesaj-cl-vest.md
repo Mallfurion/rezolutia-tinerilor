@@ -35,9 +35,9 @@ Rezoluția răspunde și unei realități deja observate în organizație: exist
 
 ---
 
-În același timp, din perspectiva formei actuale, considerăm că rezoluția a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor. Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le considerăm importante, dar separate și care merită clarificate și discutate distinct.
+În același timp, din perspectiva formei actuale, **considerăm că rezoluția a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte**. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor. Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le considerăm importante, dar separate și care merită clarificate și discutate distinct.
 
-Revenind la fondul pe care îl susținem fără echivoc, credem că direcția unei organizații în care tinerii au un rol real în inițiativă, decizie și leadership este deja reflectată în Viziunea ONCR și ar trebui să fie un punct de convergență, nu de separare.
+Revenind la fondul pe care îl susținem fără echivoc, credem că direcția unei organizații în care tinerii au un rol real în inițiativă, decizie și leadership este deja reflectată în Viziunea ONCR și **ar trebui să fie un punct de convergență, nu de separare**.
 
 ---
 
@@ -47,7 +47,7 @@ Este un pas de aliniere, nu o schimbare de structură.
 
 Un cadru de lucru, nu o rescriere de reguli.
 
-**Și, mai ales, o invitație la asumare reală – atât din partea tinerilor, cât și din partea adulților.**
+Și, mai ales, o invitație la asumare reală – atât din partea tinerilor, cât și din partea adulților.
 
 ---
 
