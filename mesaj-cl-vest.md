@@ -6,7 +6,7 @@ Considerăm că este important ca aceste discuții să reflecte cât mai multe e
 
 ---
 
-Susținem această rezoluție pentru ceea ce este ea în esență: **un instrument de clarificare și aliniere a direcției organizației, nu o modificare a cadrului statutar**.
+Susținem această rezoluție pentru ceea ce este ea în esență: **un instrument de clarificare și aliniere a direcției privind rolul tinerilor în organizație, nu o modificare a cadrului statutar**.
 
 Este important de spus clar: **rezoluția nu schimbă Statutul și nu redefinește atribuții**. Ea reafirmă o direcție și oferă un cadru în care putem construi mai coerent în jurul unei idei deja asumate – aceea de a crește rolul real al tinerilor în organizație.
 
@@ -31,13 +31,9 @@ Un sistem youth-led nu funcționează fără adulți implicați, care:
 
 Fără acest suport, ideea rămâne doar intenție.
 
-Rezoluția trebuie văzută și ca un răspuns la o realitate deja observată în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, ceea ce afectează retenția și dezvoltarea lor ca viitori lideri. Dacă ne dorim cu adevărat o Jamboree națională o dată la 4 ani, acest lucru este critic.
+În această formă, rezoluția poate fi văzută și ca un răspuns la o realitate deja observată în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, ceea ce afectează retenția și dezvoltarea lor ca viitori lideri. Dacă ne dorim cu adevărat o Jamboree națională o dată la 4 ani, acest lucru este critic.
 
----
-
-În același timp, considerăm că forma actuală a rezoluției a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor.
-
-Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le considerăm importante, dar separate și care merită clarificate și discutate distinct.
+În același timp, din perspectiva formei actuale, considerăm că rezoluția a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor. Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le considerăm importante, dar separate și care merită clarificate și discutate distinct.
 
 Revenind la fondul pe care îl susținem fără echivoc, credem că direcția unei organizații în care tinerii au un rol real în inițiativă, decizie și leadership este deja reflectată în Viziunea ONCR și ar trebui să fie un punct de convergență, nu de separare.
 
