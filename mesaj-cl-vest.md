@@ -33,9 +33,11 @@ Fără acest suport, ideea rămâne doar intenție.
 
 Rezoluția trebuie văzută și ca un răspuns la o realitate deja observată în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, iar acest lucru afectează retenția și dezvoltarea lor ca viitori lideri. Dacă ne dorim cu adevărat Jamboree națională odată la 4 ani, acest lucru este critic.
 
-**Tocmai de aceea**, pentru noi, această rezoluție are valoare tocmai pentru că pune în discuție explicit câteva întrebări de fond pe care organizația nu le mai poate lăsa la nivel de presupunere: dacă ne asumăm în mod real direcția unei mișcări în care tinerii au un rol central în inițiativă, decizie și leadership, dacă ne dorim un nivel național capabil să acționeze responsabil în direcția stabilită de Adunarea Generală și dacă, într-o democrație asociativă sănătoasă, transformăm diferențele de perspectivă în propuneri, susținere și implicare concretă.
+În același timp, considerăm că forma actuală a rezoluției a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor.
 
-Prin urmare, această rezoluție nu forțează o schimbare artificială, ci încearcă să corecteze o problemă reală și să ofere un cadru în care aceste clarificări pot deveni asumate la nivelul întregii organizații.
+Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le vedem ca fiind importante, însă separate, care merită clarificate și discutate distinct.
+
+Revenind la fondul pe care îl susținem fără echivoc, credem că direcția unei organizații în care tinerii au un rol real în inițiativă, decizie și leadership este deja reflectată în Viziunea ONCR și ar trebui să fie un punct de convergență, nu de separare, între Centrele Locale.
 
 În final, alegerea nu este despre o formulare dintr-un document, ci despre direcția în care vrem să mergem ca organizație. Dacă ne dorim o organizație în care tinerii cresc, decid și construiesc, atunci avem nevoie de un cadru care să susțină acest lucru – iar această rezoluție exact asta încearcă să ofere.
 
