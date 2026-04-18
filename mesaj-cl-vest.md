@@ -33,7 +33,9 @@ Fără acest suport, ideea rămâne doar intenție.
 
 Rezoluția trebuie văzută și ca un răspuns la o realitate deja observată în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, iar acest lucru afectează retenția și dezvoltarea lor ca viitori lideri. Dacă ne dorim cu adevărat Jamboree națională odată la 4 ani, acest lucru este critic.
 
-Prin urmare, această rezoluție nu forțează o schimbare artificială, ci încearcă să corecteze o problemă reală: **diferența dintre ceea ce declarăm că suntem și ceea ce reușim să facem în practică.**
+**Tocmai de aceea**, pentru noi, această rezoluție are valoare tocmai pentru că pune în discuție explicit câteva întrebări de fond pe care organizația nu le mai poate lăsa la nivel de presupunere: dacă ne asumăm în mod real direcția unei mișcări în care tinerii au un rol central în inițiativă, decizie și leadership, dacă ne dorim un nivel național capabil să acționeze responsabil în direcția stabilită de Adunarea Generală și dacă, într-o democrație asociativă sănătoasă, transformăm diferențele de perspectivă în propuneri, susținere și implicare concretă.
+
+Prin urmare, această rezoluție nu forțează o schimbare artificială, ci încearcă să corecteze o problemă reală și să ofere un cadru în care aceste clarificări pot deveni asumate la nivelul întregii organizații.
 
 În final, alegerea nu este despre o formulare dintr-un document, ci despre direcția în care vrem să mergem ca organizație. Dacă ne dorim o organizație în care tinerii cresc, decid și construiesc, atunci avem nevoie de un cadru care să susțină acest lucru – iar această rezoluție exact asta încearcă să ofere.
 
@@ -45,9 +47,7 @@ Un cadru de lucru, nu o rescriere de reguli.
 
 ---
 
-Credem că direcția propusă prin această rezoluție merită susținută și consolidată, iar miza principală rămâne fondul acestei propuneri: direcția pe care o asumăm ca organizație și cadrul în care tinerii pot avea un rol real în inițiativă, decizie și leadership.
-
-Diferențele de formulare sunt firești într-un astfel de proces și pot fi îmbunătățite prin mecanismele de amendare din cadrul Adunării Generale, în contextul unui dialog activ deja existent la nivelul organizației, iar în acest sens rămânem deschiși la colaborare pentru formularea și susținerea de amendamente.
+Credem că direcția propusă prin această rezoluție merită susținută și consolidată. Diferențele de formulare sunt firești într-un astfel de proces și pot fi îmbunătățite prin mecanismele de amendare din cadrul Adunării Generale, în contextul unui dialog activ deja existent la nivelul organizației. În acest cadru, rămânem deschiși la colaborare pentru formularea și susținerea de amendamente.
 
 Cu încredere în procesul nostru democratic și în capacitatea noastră de a construi împreună,
 
