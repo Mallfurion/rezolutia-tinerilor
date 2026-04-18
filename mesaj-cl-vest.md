@@ -45,7 +45,7 @@ Este un pas de aliniere, nu o schimbare de structură.
 
 Un cadru de lucru, nu o rescriere de reguli.
 
-**Și, mai ales, o invitație la asumare reală a rolului pe care tinerii și adulții îl au, fiecare, în construirea unei organizații cu adevărat youth-led.**
+**Și, mai ales, o invitație la asumare reală – atât din partea tinerilor, cât și din partea adulților.**
 
 ---
 
