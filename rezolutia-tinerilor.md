@@ -20,6 +20,6 @@ Afirmăm că ONCR este cadrul comun în care realizăm împreună Viziunea 2029,
 
 Contribuția la organizația națională se manifestă și în propuneri, muncă în echipe naționale, candidaturi și asumare publică de responsabilități, în numele ONCR, nu pe la spatele ei.
 
-Adunarea Generală oferă mandat Consiliului Director să își exercite rolul de setare a direcției și de protejare a caracterului de mișcare națională unitară a cercetășiei din România, prin decizii curajoase și transparente, și invită Centrele Locale și tinerii să intre activ în acest cadru: să propună, să construiască, să își asume responsabilități și să își crească reprezentarea la nivel național.
+Adunarea Generală mandatează Consiliul Director să urmărească și să susțină implementarea acestei direcții, precum și protejarea caracterului de mișcare națională unitară a cercetășiei din România, prin decizii curajoase și transparente, în limitele Statutului, Regulamentului și hotărârilor Adunării Generale și cu respectarea drepturilor membrilor, și invită Centrele Locale și tinerii să intre activ în acest cadru: să propună, să construiască, să își asume responsabilități și să își crească reprezentarea la nivel național.
 
 Mișcarea nu se schimbă din culise, ci prin implicare.
