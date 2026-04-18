@@ -2,7 +2,7 @@
 
 **Propunere de la:** Consiliul Director
 
-Adunarea Generală reafirmă că cercetășia în România este, în esență, o mișcare a tinerilor. Tinerii sunt motorul, inițiatorii și principalii decidenți ai mișcării noastre. Rolul adulților, al echipelor și al structurilor la orice nivel este să creeze spațiu sigur, opțiuni și resurse, astfel încât tinerii să poată conduce cu încredere, entuziasm și responsabilitate, fără să simtă că sunt dați la o parte sau doar invitați să participe în planuri, programe și activități care nu sunt ale lor.
+Adunarea Generală reafirmă că cercetășia în România este, în esență, o mișcare a tinerilor. Tinerii sunt motorul, inițiatorii și principalii decidenți ai mișcării noastre. Rolul adulților, al echipelor și al structurilor la orice nivel este să creeze spațiu sigur, opțiuni și resurse și să susțină, prin cooperare intergenerațională, participarea tinerilor la conducere cu încredere, entuziasm și responsabilitate, fără să simtă că sunt dați la o parte sau doar invitați să participe în planuri, programe și activități care nu sunt ale lor.
 
 Prin mișcare a tinerilor înțelegem conducerea și inițiativa tinerilor, nu o preferință pentru unele ramuri de vârstă. O mișcare a tinerilor nu minimizează importanța lupișorilor, temerarilor sau a altor programe și ramuri de vârstă ale ONCR. În același timp, tineri nu înseamnă doar eXploratori sau seniori, ci include și tinerii lideri, scouteri sau voluntari adulți din organizație, care pot și trebuie să fie parte din leadership, construcție și decizie.
 
