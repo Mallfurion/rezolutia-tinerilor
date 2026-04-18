@@ -31,25 +31,29 @@ Un sistem youth-led nu funcționează fără adulți implicați, care:
 
 Fără acest suport, ideea rămâne doar intenție.
 
-Rezoluția trebuie văzută și ca un răspuns la o realitate deja observată în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, iar acest lucru afectează retenția și dezvoltarea lor ca viitori lideri. Dacă ne dorim cu adevărat Jamboree națională odată la 4 ani, acest lucru este critic.
+Rezoluția trebuie văzută și ca un răspuns la o realitate deja observată în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, ceea ce afectează retenția și dezvoltarea lor ca viitori lideri. Dacă ne dorim cu adevărat o Jamboree națională o dată la 4 ani, acest lucru este critic.
+
+---
 
 În același timp, considerăm că forma actuală a rezoluției a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor.
 
-Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le vedem ca fiind importante, însă separate, care merită clarificate și discutate distinct.
+Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le considerăm importante, dar separate și care merită clarificate și discutate distinct.
 
-Revenind la fondul pe care îl susținem fără echivoc, credem că direcția unei organizații în care tinerii au un rol real în inițiativă, decizie și leadership este deja reflectată în Viziunea ONCR și ar trebui să fie un punct de convergență, nu de separare, între Centrele Locale.
+Revenind la fondul pe care îl susținem fără echivoc, credem că direcția unei organizații în care tinerii au un rol real în inițiativă, decizie și leadership este deja reflectată în Viziunea ONCR și ar trebui să fie un punct de convergență, nu de separare.
 
-În final, alegerea nu este despre o formulare dintr-un document, ci despre direcția în care vrem să mergem ca organizație. Dacă ne dorim o organizație în care tinerii cresc, decid și construiesc, atunci avem nevoie de un cadru care să susțină acest lucru – iar această rezoluție exact asta încearcă să ofere.
+---
+
+În final, alegerea nu este despre o formulare dintr-un document, ci despre direcția în care vrem să mergem ca organizație. Dacă ne dorim o organizație în care tinerii cresc, decid și construiesc, atunci avem nevoie de un cadru care să susțină acest lucru – direcție pe care această rezoluție o aduce în discuție și o poate consolida.
 
 Este un pas de aliniere, nu o schimbare de structură.
 
 Un cadru de lucru, nu o rescriere de reguli.
 
-**Și, mai ales, o invitație la asumare – atât pentru tineri, cât și pentru adulți.**
+**Și, mai ales, o invitație la asumare reală a rolului pe care tinerii și adulții îl au, fiecare, în construirea unei organizații cu adevărat youth-led.**
 
 ---
 
-Credem că direcția propusă prin această rezoluție merită susținută și consolidată. Diferențele de formulare sunt firești într-un astfel de proces și pot fi îmbunătățite prin mecanismele de amendare din cadrul Adunării Generale, în contextul unui dialog activ deja existent la nivelul organizației. În acest cadru, rămânem deschiși la colaborare pentru formularea și susținerea de amendamente.
+Credem că direcția privind mișcarea tinerilor merită susținută și consolidată. Diferențele de formulare sunt firești într-un astfel de proces și pot fi îmbunătățite prin mecanismele de amendare din cadrul Adunării Generale, în contextul unui dialog deja activ la nivelul organizației. În acest cadru, rămânem deschiși la colaborare pentru formularea și susținerea de amendamente.
 
 Cu încredere în procesul nostru democratic și în capacitatea noastră de a construi împreună,
 
