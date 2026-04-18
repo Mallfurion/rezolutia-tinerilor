@@ -20,7 +20,7 @@ Asta este miza reală: nu schimbarea regulilor, ci schimbarea modului în care f
 
 În același timp, ideea de „mișcare a tinerilor” nu exclude pe nimeni și nu dezechilibrează organizația. Din contră, ea definește mai clar rolurile: **tinerii sunt încurajați să conducă, iar adulții, prin cooperare intergenerațională, au responsabilitatea de a crea condițiile în care acest lucru devine posibil – spațiu sigur, resurse, suport și continuitate.**
 
-Aici apare, de fapt, unul dintre punctele cheie: **rolul adulților devine și mai important în acest context.**
+Aici apare, de fapt, unul dintre punctele cheie: rolul adulților **devine și mai important** în acest context.
 
 Un sistem youth-led nu funcționează fără adulți implicați, care:
 
