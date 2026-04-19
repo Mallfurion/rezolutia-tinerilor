@@ -31,7 +31,7 @@ Un sistem youth-led nu funcționează fără adulți implicați, care:
 
 Fără acest suport, ideea rămâne doar intenție.
 
-Rezoluția răspunde și unei realități deja observate în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, ceea ce afectează retenția și dezvoltarea lor ca viitori lideri. Această nevoie este vizibilă inclusiv în discuțiile despre Jamboree, unde pregătirea tinerilor pentru roluri reale de coordonare devine un element critic.
+Rezoluția răspunde și unei realități deja observate în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, ceea ce afectează retenția și dezvoltarea lor ca viitori lideri. Această nevoie se vede și în discuțiile despre Jamboree, unde pregătirea tinerilor pentru roluri reale de coordonare devine un element critic.
 
 În același timp, din perspectiva formei actuale, **considerăm că rezoluția a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte**. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor. Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le considerăm importante, dar separate și care merită clarificate și discutate distinct.
 
