@@ -18,9 +18,9 @@ Este important de spus clar: **rezoluția nu schimbă Statutul și nu redefineș
 
 Asta este miza reală: nu schimbarea regulilor, ci schimbarea modului în care folosim spațiul deja existent.
 
-În același timp, ideea de „mișcare a tinerilor” nu exclude pe nimeni și nu dezechilibrează organizația. Din contră, ea definește mai clar rolurile: **tinerii sunt încurajați să conducă, iar adulții au responsabilitatea de a crea condițiile în care acest lucru devine posibil – spațiu sigur, resurse, suport și continuitate.**
+În același timp, ideea de „mișcare a tinerilor” nu exclude pe nimeni și nu dezechilibrează organizația. Din contră, ea definește mai clar rolurile: **tinerii sunt încurajați să conducă, iar adulții, prin cooperare intergenerațională, au responsabilitatea de a crea condițiile în care acest lucru devine posibil – spațiu sigur, resurse, suport și continuitate.**
 
-Aici apare, de fapt, unul dintre punctele cheie: **rolul adulților devine și mai important în acest context.**
+Aici apare, de fapt, unul dintre punctele cheie: rolul adulților **devine și mai important** în acest context.
 
 Un sistem youth-led nu funcționează fără adulți implicați, care:
 
@@ -31,13 +31,11 @@ Un sistem youth-led nu funcționează fără adulți implicați, care:
 
 Fără acest suport, ideea rămâne doar intenție.
 
-Rezoluția răspunde și unei realități deja observate în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, ceea ce afectează retenția și dezvoltarea lor ca viitori lideri. Dacă ne dorim cu adevărat o Jamboree națională o dată la 4 ani, acest lucru este critic.
+Rezoluția răspunde și unei realități deja observate în organizație: există încă o lipsă de contexte în care tinerii să fie implicați cu adevărat în decizie și responsabilitate, ceea ce afectează retenția și dezvoltarea lor ca viitori lideri. Această nevoie se vede și în discuțiile despre Jamboree, unde pregătirea tinerilor pentru roluri reale de coordonare devine un element critic.
 
-În același timp, din perspectiva formei actuale, considerăm că rezoluția a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor. Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le considerăm importante, dar separate și care merită clarificate și discutate distinct.
+În același timp, din perspectiva formei actuale, **considerăm că rezoluția a generat confuzie tocmai pentru că aduce împreună mai multe teme distincte**. Pentru noi, susținerea este clară în ceea ce privește direcția unei mișcări a tinerilor. Discuțiile despre rolul nivelului național și despre modelul de funcționare democratică a organizației le considerăm importante, dar separate și care merită clarificate și discutate distinct.
 
-Revenind la fondul pe care îl susținem fără echivoc, credem că direcția unei organizații în care tinerii au un rol real în inițiativă, decizie și leadership este deja reflectată în Viziunea ONCR și ar trebui să fie un punct de convergență, nu de separare.
-
----
+Revenind la fondul pe care îl susținem fără echivoc, credem că direcția unei organizații în care tinerii au un rol real în inițiativă, decizie și leadership este deja reflectată în Viziunea ONCR și **ar trebui să fie un punct de convergență, nu de separare**.
 
 În final, alegerea nu este despre o formulare dintr-un document, ci despre direcția în care vrem să mergem ca organizație. Dacă ne dorim o organizație în care tinerii cresc, decid și construiesc, atunci avem nevoie de un cadru care să susțină acest lucru – direcție pe care această rezoluție o aduce în discuție și o poate consolida.
 
@@ -45,7 +43,7 @@ Este un pas de aliniere, nu o schimbare de structură.
 
 Un cadru de lucru, nu o rescriere de reguli.
 
-**Și, mai ales, o invitație la asumare reală – atât din partea tinerilor, cât și din partea adulților.**
+Și, mai ales, **o invitație la asumare reală** – atât din partea tinerilor, cât și din partea adulților.
 
 ---
 
