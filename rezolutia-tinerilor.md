@@ -10,4 +10,6 @@ Adunarea Generală re-confirmă că își dorește un nivel național care repre
 
 Contribuția la organizația națională se manifestă și în propuneri, muncă în echipe naționale, candidaturi și asumare publică de responsabilități în cadrul ONCR.
 
-Adunarea Generală reafirmă rolul Consiliului Director de a susține și urmări implementarea acestei direcții, precum și protejarea și consolidarea caracterului de mișcare națională unitară a cercetășiei din România, prin decizii transparente și în acord cu Viziunea 2029, în limitele Statutului, Regulamentului și hotărârilor Adunării Generale, și invită Centrele Locale și tinerii să intre activ în acest cadru: să propună, să construiască, să își asume responsabilități și să își crească reprezentarea la nivel național, contribuind la o mișcare coerentă, relevantă și unitară.
+Adunarea Generală reafirmă rolul Consiliului Director de a susține și urmări implementarea acestei direcții, precum și protejarea și consolidarea caracterului de mișcare națională unitară a cercetășiei din România.
+Adunarea Generală solicită Consiliului Director decizii transparente în vederea îndeplinirii Viziunii 2029.
+Adunarea Generală invită Centrele Locale și tinerii să fie partea activă a acestui cadru: să propună, să construiască, să își asume responsabilități și să își crească reprezentativitatea la nivel național, contribuind la edificarea unei mișcări cercetășești coerente, relevante și unitare.
