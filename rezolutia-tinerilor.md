@@ -6,7 +6,7 @@ Adunarea Generală reafirmă că cercetășia în România este, în esență, o
 
 Prin mișcare a tinerilor înțelegem conducerea și inițiativa tinerilor, nu o preferință pentru unele ramuri de vârstă. O mișcare a tinerilor nu minimizează importanța lupișorilor, temerarilor sau a altor programe și ramuri de vârstă ale ONCR. În același timp, tineri nu înseamnă doar eXploratori sau seniori, ci include și tinerii lideri, scouteri sau voluntari adulți din organizație, care pot și trebuie să fie parte din leadership, construcție și decizie.
 
-Adunarea Generală reconfirmă rolul nivelului național ca motor strategic, nu doar administrativ, responsabil de stabilirea viziunii și a priorităților mișcării. ONCR reprezintă cadrul comun pentru realizarea Viziunii 2029, în care fiecare Centru Local este chemat să depășească barierele comunității proprii și să contribuie activ la consolidarea unei organizații unitare, prin acțiuni concrete la toate nivelurile.
+Adunarea Generală reconfirmă rolul nivelului național ca motor strategic, nu doar administrativ, responsabil de stabilirea viziunii și a priorităților mișcării. Afirmăm că ONCR este cadrul comun în care realizăm împreună Viziunea 2029, în care fiecare dintre noi, Centre Locale și cercetași, care ne dorim o mișcare cercetășească mai puternică este chemat să privească dincolo de barierele propriei comunități și să contribuie activ la îndeplinirea Viziunii prin ceea ce construiește concret la nivel local, regional și național.
 
 Contribuția la organizația națională se manifestă și în propuneri, muncă în echipe naționale, candidaturi și asumare publică de responsabilități în cadrul ONCR.
 
