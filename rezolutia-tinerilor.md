@@ -12,4 +12,4 @@ Contribuția la organizația națională se manifestă și în propuneri, muncă
 
 Adunarea Generală reafirmă rolul Consiliului Director de a susține și urmări implementarea acestei direcții, precum și protejarea și consolidarea caracterului de mișcare națională unitară a cercetășiei din România.
 Adunarea Generală solicită Consiliului Director decizii transparente în vederea îndeplinirii Viziunii 2029.
-Adunarea Generală invită Centrele Locale și tinerii să fie partea activă a acestui cadru: să propună, să construiască, să își asume responsabilități și să își crească reprezentativitatea la nivel național, contribuind la edificarea unei mișcări cercetășești coerente, relevante și unitare.
+Adunarea Generală invită Centrele Locale și tinerii să fie partea activă a acestui cadru: să propună, să construiască, să își asume responsabilități și să își crească reprezentativitatea la nivel național, contribuind la o mișcare coerentă, relevantă și unitară.
