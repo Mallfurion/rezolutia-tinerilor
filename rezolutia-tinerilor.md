@@ -1,6 +1,6 @@
 # Rezoluție
 
-**Propunere de la:** Consiliul Director
+**Propunere de la:** Consiliul Director (amendată de CL Vest Cluj-Napoca)
 
 Adunarea Generală reafirmă că cercetășia în România este, în esență, o mișcare a tinerilor, așa cum a fost definită de prima prioritate strategică a Viziunii 2029. Tinerii sunt motorul, inițiatorii și principalii decidenți ai mișcării noastre fiind încurajați și susținuți să conducă cu încredere, entuziasm și responsabilitate, în colaborare cu adulții și cu structurile organizației. Rolul adulților, al echipelor și al structurilor la orice nivel este să creeze un spațiu sigur, să ofere sprijin, resurse și oportunități care să faciliteze asumarea leadershipului de către tineri.
 
